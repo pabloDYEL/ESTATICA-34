@@ -1,1 +1,1 @@
-![image](https://github.com/pabloDYEL/ESTATICA-34/assets/116923433/d45251bc-1458-4d36-8cf1-47d71427db62)
+![image](https://github.com/pabloDYEL/ESTATICA-34/assets/116923433/0c30431c-4c18-499e-b545-c64660ce9ddf)
